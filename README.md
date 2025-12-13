@@ -5,7 +5,7 @@
 
 - 🪐 Physics student at Universidad Nacional de Colombia
 - 🌙 Crossfit athlete and occasional musician 
-
+- 🏔️ Marathon runner 
 
 
 <!--
