@@ -1,7 +1,7 @@
 # Hi! 
 
 ![Universe banner](https://i.pinimg.com/564x/a0/a3/45/a0a345bbe39530f1e2487f5f434ff2fa.jpg)
-> This Is How I Disappear | MCR [▶]([https://open.spotify.com/track/6mOiT65GFmXgBAviM3lrsE](https://www.youtube.com/watch?v=3df8CooYnSs&list=RD3df8CooYnSs&start_radio=1))
+> This Is How I Disappear | MCR [▶](https://www.youtube.com/watch?v=3df8CooYnSs&list=RD3df8CooYnSs&start_radio=1)
 
 - 🪐 Physics student at Universidad Nacional de Colombia
 - 🌙 Crossfit athlete and occasional musician 
